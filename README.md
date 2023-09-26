@@ -1,4 +1,5 @@
 ### Hi there 👋
+![ezgif com-crop (1)](https://github.com/Zezypups/Zezypups/assets/109433579/b0bb7b5c-7524-4554-8a60-8db4cc9cfe6a)
 
 <!--
 **Zezypups/Zezypups** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
