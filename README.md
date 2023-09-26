@@ -1,5 +1,6 @@
 ### Hi there 👋
-![404banner](https://github.com/Zezypups/Zezypups/assets/109433579/6660d6e0-2857-43bc-bb99-550480358e04)
+![404banner](https://github.com/Zezypups/Zezypups/assets/109433579/88df8ca7-65eb-4840-bbc0-cdad1c9fbe81)
+
 
 
 <!--
